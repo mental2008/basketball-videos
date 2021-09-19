@@ -38,7 +38,7 @@ Kansas vs Memphis (Derrick Rose, Mario Chalmers) [[YouTube](https://www.youtube.
 
 #### NCAA 决赛
 
-Ohio State vs Xavier (Greg Oden and Mike Conley) [[YouTube](https://www.youtube.com/watch?v=xrd8eaGn6lY)]\
+Ohio State vs Xavier (Greg Oden and Mike Conley) [[YouTube](https://www.youtube.com/watch?v=xrd8eaGn6lY)]
 
 ### 2003年
 
