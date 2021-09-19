@@ -8,7 +8,7 @@
 
 ## NBA
 
-### 2008-09赛季
+### 2008-09 赛季
 
 #### 西部半决赛
 
@@ -19,6 +19,17 @@
 2009年5月13日 NBA西部半决赛G5 火箭vs湖人 [[腾讯视频](https://v.qq.com/x/page/k01656bzozo.html)]\
 2009年5月15日 NBA西部半决赛G6 湖人vs火箭 [[腾讯视频](https://v.qq.com/x/page/h0165x8mxon.html)]\
 2009年5月18日 NBA西部半决赛G7 火箭vs湖人 [[腾讯视频](https://v.qq.com/x/page/e0165743kux.html)]
+
+### 2006-07 赛季
+
+#### 西部首轮
+
+Golden State Warriors vs Dallas Mavericks G1 [[YouTube](https://www.youtube.com/watch?v=5qOcifHSYVY)]\
+Golden State Warriors vs Dallas Mavericks G2 [[YouTube](https://www.youtube.com/watch?v=-FT-mKKmJX0)]\
+Dallas Mavericks vs Golden State Warriors G3 [[YouTube](https://www.youtube.com/watch?v=E7ANIlBn4-Y)]\
+Dallas Mavericks vs Golden State Warriors G4 [[YouTube](https://www.youtube.com/watch?v=s1c85RSDQQk)]\
+Golden State Warriors vs Dallas Mavericks G5 [[YouTube](https://www.youtube.com/watch?v=sWi0IoQSqY8)]\
+Dallas Mavericks vs Golden State Warriors G6 [[YouTube](https://www.youtube.com/watch?v=L2c3BNc-nLw)]
 
 ## NCAA
 
