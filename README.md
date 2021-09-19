@@ -26,20 +26,26 @@
 
 #### NCAA 决赛
 
-肯塔基vs堪萨斯 (安东尼·戴维斯) [[YouTube](https://www.youtube.com/watch?v=jZj2UkglB9E)]
+Kentucky vs Kansas (Anthony Davis) [[YouTube](https://www.youtube.com/watch?v=jZj2UkglB9E)]
 
 ### 2008年
 
 #### NCAA 决赛
 
-堪萨斯vs孟菲斯 (德里克·罗斯) [[YouTube](https://www.youtube.com/watch?v=Oo8ZAVaVUUQ)]
+Kansas vs Memphis (Derrick Rose, Mario Chalmers) [[YouTube](https://www.youtube.com/watch?v=Oo8ZAVaVUUQ)]
+
+### 2007年
+
+#### NCAA 决赛
+
+Ohio State vs Xavier (Greg Oden and Mike Conley) [[YouTube](https://www.youtube.com/watch?v=xrd8eaGn6lY)]\
 
 ### 2003年
 
 #### NCAA 决赛
 
-雪城vs堪萨斯 (卡梅隆·安东尼) [[YouTube](https://www.youtube.com/watch?v=pl9cPZehbQw)][[Bilibili](https://www.bilibili.com/video/BV1bb4y1m7hy)]
+Syracuse vs Kansas (Carmelo Anthony, Kirk Hinrich) [[YouTube](https://www.youtube.com/watch?v=pl9cPZehbQw)][[Bilibili](https://www.bilibili.com/video/BV1bb4y1m7hy)]
 
 #### NCAA 八强赛
 
-马奎特vs肯塔基 (德怀恩·韦德) [[YouTube](https://www.youtube.com/watch?v=BhuKDbIkTzo)][[Bilibili](https://www.bilibili.com/video/BV1CQ4y1Y7Ts)]
+Marquette vs Kentucky (Dwyane Wade) [[YouTube](https://www.youtube.com/watch?v=BhuKDbIkTzo)][[Bilibili](https://www.bilibili.com/video/BV1CQ4y1Y7Ts)]
