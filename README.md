@@ -10,26 +10,35 @@
 
 ### 2008-09 赛季
 
-#### 西部半决赛
+#### 西部决赛 洛杉矶湖人vs丹佛掘金
 
-2009年5月5日 NBA西部半决赛G1 火箭vs湖人 [[腾讯视频](https://v.qq.com/x/page/n0165i2uo5r.html)]\
-2009年5月7日 NBA西部半决赛G2 火箭vs湖人 [[腾讯视频](https://v.qq.com/x/page/q0165et0p8v.html)]\
-2009年5月9日 NBA西部半决赛G3 湖人vs火箭 [[腾讯视频](https://v.qq.com/x/page/m016564m1xr.html)]\
-2009年5月11日 NBA西部半决赛G4 湖人vs火箭 [[腾讯视频](https://v.qq.com/x/page/z01657eu90k.html)]\
-2009年5月13日 NBA西部半决赛G5 火箭vs湖人 [[腾讯视频](https://v.qq.com/x/page/k01656bzozo.html)]\
-2009年5月15日 NBA西部半决赛G6 湖人vs火箭 [[腾讯视频](https://v.qq.com/x/page/h0165x8mxon.html)]\
-2009年5月18日 NBA西部半决赛G7 火箭vs湖人 [[腾讯视频](https://v.qq.com/x/page/e0165743kux.html)]
+- G6 [[企鹅体育](https://live.qq.com/video/v/255979)]
+- G5 [[企鹅体育](https://live.qq.com/video/v/255977)]
+- G4 [[企鹅体育](https://live.qq.com/video/v/255956)]
+- G3 [[企鹅体育](https://live.qq.com/video/v/255796)]
+- G2 [[企鹅体育](https://live.qq.com/video/v/255795)]
+- G1 [[企鹅体育](https://live.qq.com/video/v/255794)]
+
+#### 西部半决赛 洛杉矶湖人vs休斯顿火箭
+
+- G7 [[腾讯视频](https://v.qq.com/x/page/e0165743kux.html)]
+- G6 [[腾讯视频](https://v.qq.com/x/page/h0165x8mxon.html)]
+- G5 [[腾讯视频](https://v.qq.com/x/page/k01656bzozo.html)]
+- G4 [[腾讯视频](https://v.qq.com/x/page/z01657eu90k.html)]
+- G3 [[腾讯视频](https://v.qq.com/x/page/m016564m1xr.html)]
+- G2 [[腾讯视频](https://v.qq.com/x/page/q0165et0p8v.html)]
+- G1 [[腾讯视频](https://v.qq.com/x/page/n0165i2uo5r.html)]
 
 ### 2006-07 赛季
 
-#### 西部首轮
+#### 西部首轮 达拉斯小牛vs金州勇士
 
-Golden State Warriors vs Dallas Mavericks G1 [[YouTube](https://www.youtube.com/watch?v=5qOcifHSYVY)]\
-Golden State Warriors vs Dallas Mavericks G2 [[YouTube](https://www.youtube.com/watch?v=-FT-mKKmJX0)]\
-Dallas Mavericks vs Golden State Warriors G3 [[YouTube](https://www.youtube.com/watch?v=E7ANIlBn4-Y)]\
-Dallas Mavericks vs Golden State Warriors G4 [[YouTube](https://www.youtube.com/watch?v=s1c85RSDQQk)]\
-Golden State Warriors vs Dallas Mavericks G5 [[YouTube](https://www.youtube.com/watch?v=sWi0IoQSqY8)]\
-Dallas Mavericks vs Golden State Warriors G6 [[YouTube](https://www.youtube.com/watch?v=L2c3BNc-nLw)]
+- G6 [[YouTube](https://www.youtube.com/watch?v=L2c3BNc-nLw)]
+- G5 [[YouTube](https://www.youtube.com/watch?v=sWi0IoQSqY8)]
+- G4 [[YouTube](https://www.youtube.com/watch?v=s1c85RSDQQk)]
+- G3 [[YouTube](https://www.youtube.com/watch?v=E7ANIlBn4-Y)]
+- G2 [[YouTube](https://www.youtube.com/watch?v=-FT-mKKmJX0)]
+- G1 [[YouTube](https://www.youtube.com/watch?v=5qOcifHSYVY)]
 
 ## NCAA
 
