@@ -43,6 +43,12 @@
 
 - G1 [[YouTube](https://www.youtube.com/watch?v=EK8s4BJ528Y)]
 
+#### 东部决赛 
+
+##### （1）克利夫兰骑士 vs. （3）奥兰多魔术
+
+- G6 [[YouTube](https://www.youtube.com/watch?v=AYIsdFildwM)]
+
 #### 东部半决赛
 
 ##### （2）波士顿凯尔特人 vs. （3）奥兰多魔术
