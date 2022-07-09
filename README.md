@@ -16,7 +16,9 @@
 
 ### 2008-09 赛季
 
-#### 西部决赛 洛杉矶湖人vs丹佛掘金
+#### 西部决赛
+
+##### （1）洛杉矶湖人 vs. （2）丹佛掘金
 
 - G6 [[企鹅体育](https://live.qq.com/video/v/255979)]
 - G5 [[企鹅体育](https://live.qq.com/video/v/255977)]
@@ -25,7 +27,9 @@
 - G2 [[企鹅体育](https://live.qq.com/video/v/255795)]
 - G1 [[企鹅体育](https://live.qq.com/video/v/255794)]
 
-#### 西部半决赛 洛杉矶湖人vs休斯顿火箭
+#### 西部半决赛
+
+##### （1）洛杉矶湖人 vs. （5）休斯顿火箭
 
 - G7 [[腾讯视频](https://v.qq.com/x/page/e0165743kux.html)]
 - G6 [[腾讯视频](https://v.qq.com/x/page/h0165x8mxon.html)]
@@ -34,6 +38,18 @@
 - G3 [[腾讯视频](https://v.qq.com/x/page/m016564m1xr.html)]
 - G2 [[腾讯视频](https://v.qq.com/x/page/q0165et0p8v.html)]
 - G1 [[腾讯视频](https://v.qq.com/x/page/n0165i2uo5r.html)]
+
+##### （2）丹佛掘金 vs. （6）达拉斯小牛
+
+- G1 [[YouTube](https://www.youtube.com/watch?v=EK8s4BJ528Y)]
+
+#### 东部半决赛
+
+##### （2）波士顿凯尔特人 vs. （3）奥兰多魔术
+
+- G5 [[YouTube](https://www.youtube.com/watch?v=U0Q2-lewmu4)]
+- G4 [[YouTube](https://www.youtube.com/watch?v=AgbhDubuMSw)]
+- G1 [[YouTube](https://www.youtube.com/watch?v=PRSPbZJSZ2I)]
 
 ### 2006-07 赛季
 
